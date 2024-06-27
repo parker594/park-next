@@ -1,9 +1,7 @@
 # park-next
-this is my first project  i hope this is help full for other open-source  contributors
-hy  bro
+HY IAM EAGER TO WORK IN OPENSOURCE 
+
 <br>
-author -debajyoti upadhayaya 
-this is my first project  i hope this is help full for other open-source  contributors
-hy  bro
+for contact
 <br>
-author -debajyoti upadhayaya 
+EMAIL -debajyotiupadhayaya@gmail.com 
